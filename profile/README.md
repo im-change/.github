@@ -1,2 +1,2 @@
-# im-change
-The change coming to your life
+# im-change 
+i m change itself.
